@@ -1,0 +1,1 @@
+# AI-Vois-do-naprwienia-system-w-OS
